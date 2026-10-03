@@ -1,1 +1,0 @@
-# Teinco_orienta
